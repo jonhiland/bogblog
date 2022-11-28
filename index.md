@@ -1,6 +1,6 @@
 Hello world
 
-*Cranberries* **do not actually grow in bogs**
+*Cranberries* **do not actually grow in bogs.** One method of harvest is to flood an area, creating a man made bog.
 
 Cranberries actually thrive in what known as a bog, or an area is characterized by an acidic peat soil.  The confusion comes from the harvesting method, also known as the “wet method.”  The cranberry has four air pockets that allow the berries to float to the surface when the bog is flooded and they are cut from their vines.  Once they are cut, they are then corralled and removed from the water via suction, as seen here.  However, the wet method is used primarily for berries that are meant for further processing, such as juice production or to make the beloved canned cranberry sauce.
 
